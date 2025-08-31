@@ -67,7 +67,7 @@ This portfolio showcases my academic and professional projects, highlighting my 
 
 ## 📬 Let’s Connect  
 - 💼 [LinkedIn](https://linkedin.com/)  
-- 📧 Email: ramakryshna@gmail.com  
+- 📧 Email: @gmail.com  
 
 ---
 
